@@ -20,6 +20,6 @@ Sou **Kauê Eugênio**, mas pode me chamar de **Gênio**. Sou apaixonado por **t
 Entre em contato pelo e-mail: [robótica.circuitos.br@gmail.com](mailto:robótica.circuitos.br@gmail.com)  
 Quem sabe não criamos algo incrível juntos? 🚀  
 
-Entre estudos e projetos 📚, sempre há algo novo para aprender e compartilhar.  
+##Entre estudos e projetos 📚, sempre há algo novo para aprender e compartilhar.  
 
 **Última atualização: 6 de janeiro de 2025**
